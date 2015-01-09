@@ -2,4 +2,4 @@
 欢迎大家参与进来
 :yellow_heart::blue_heart::purple_heart::heart::green_heart:
 
-http://www.iwait.me 
+http://182.92.2.20 [www.iwait.me]
